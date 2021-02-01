@@ -2,4 +2,3 @@
 
 
 deneme12
-dfghjkl
